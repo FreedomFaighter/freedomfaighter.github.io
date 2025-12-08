@@ -1,1 +1,1 @@
-# freedomfaighter.github.io
+# freemania.github.io
